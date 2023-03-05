@@ -1,5 +1,5 @@
 Emmanuel Abiodun OLANREWAJU   
-3465418817 || Texas, USA.  
++13465418817 || Texas, USA.  
 Email: eolanrew@cougarnet.uh.edu 
 # EDUCATION
 * University of Houston, Houston, Texas, USA. August 2022
@@ -22,7 +22,7 @@ Email: eolanrew@cougarnet.uh.edu
 # RESEARCH INTEREST  
   * Material Science
   * Zeolite Synthesis 
-  * Interatomic potential
+  * Interatomic Potential
 # TEACHING EXPERIENCE 
   * Academic Tutor, Ladoke Akintola University of Technology May 2015-June 2021 ∙ Explained topics in renewable energy to over 200 first-year undergraduate  students. 
   * Explained complex concepts in thermochemical conversion of energy clearly and  concisely. 
