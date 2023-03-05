@@ -1,5 +1,5 @@
 Emmanuel Abiodun OLANREWAJU   
-3465418817 || Texas, USA 
+3465418817 || Texas, USA.  
 Email: eolanrew@cougarnet.uh.edu 
 # EDUCATION
 * University of Houston, Houston, Texas, USA. August 2022
