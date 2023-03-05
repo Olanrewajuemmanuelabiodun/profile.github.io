@@ -1,9 +1,9 @@
 Emmanuel Abiodun OLANREWAJU   
 3465418817 || Texas, USA 
-Email: eolanrew@uh.edu 
+Email: eolanrew@cougarnet.uh.edu 
 # EDUCATION
 * University of Houston, Houston, Texas, USA. August 2022
-  * PhD Program in Chemical Engineering
+  * PhD in Chemical Engineering
 * Ladoke Akintola University of Technology, Oyo State, Nigeria. June 2021 
   * Bachelor of Technology (B.Tech) in Mechanical Engineering (4.66/5.0, First  Class)  
   * Top 2% of 135 students 
