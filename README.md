@@ -27,7 +27,7 @@ Email: eolanrew@cougarnet.uh.edu
   * Academic Tutor, Ladoke Akintola University of Technology May 2015-June 2021 ∙ Explained topics in renewable energy to over 200 first-year undergraduate  students. 
   * Explained complex concepts in thermochemical conversion of energy clearly and  concisely. 
   * Counseled undergraduate students were experiencing difficulties in courses.
-# Physics Teacher, Iba High School Oyo State March 2021-Till date 
+# Physics Teacher, Iba High School Oyo State March 2021-June 2022 
   * Explained complex topics in physics 
   * Conduct continuous assessment for students
 # VOLUNTEERING EXPERIENCE 
